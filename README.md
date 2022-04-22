@@ -1,6 +1,6 @@
 # Who am I?
 
-Hi, I’m Hyun Go from korea, Currently Studying Sports Coaching & Software Conversion from Kyunghee Univ.
+Hi, I’m Hyun Go from korea, Currently Studying Sports Coaching & Software Convergence from Kyunghee Univ.
 
 My Interests are : 
 
